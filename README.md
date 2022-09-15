@@ -1,1 +1,0 @@
-# 3BHIF-POS-Pavlov
